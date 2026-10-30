@@ -1,0 +1,1 @@
+# AlgoritmaVeVeriYapilariMantigi-rapor
